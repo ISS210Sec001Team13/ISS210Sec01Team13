@@ -9,4 +9,5 @@ Lillie-Blanton, M., et al. “Race, Ethnicity, and the Health Care System: Publi
 Journal of Cross-Cultural Gerontology. Mar2021, Vol. 36 Issue 1, p69-89. 21p. 1 Chart. DOI:
 10.1007/s10823-020-09420-w. , Database: Health Policy Reference Center. Accessed 21 November
 2022
+
 Gross, MichaelL. “Why treat the Wounded? Warrior Care, Military Salvage, and National Health.” American journal of bioethics. Fed2008, Vol. 8 Issue 2, p3-12. 10p. Doi: 10.1080/15265160802014977. Accessed 21 Nov 2022.   Veteran Healthcare
